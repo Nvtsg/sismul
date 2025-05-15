@@ -1,1 +1,1 @@
-Lab task
+Lab
